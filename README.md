@@ -1,0 +1,1 @@
+Este es un resumen del curso de Financial Markets de la Universidad de Yale completamente en español, dictado por le profesor Robert J. Shiller,  ganador del Premio Nobel en Economia en 2013. Espero que te sirva
